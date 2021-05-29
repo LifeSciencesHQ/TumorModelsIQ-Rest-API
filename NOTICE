@@ -1,0 +1,1 @@
+Copyright LifeSciencesIQ or its affiliates. All Rights Reserved.
